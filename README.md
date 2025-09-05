@@ -30,7 +30,7 @@
 2. **[芝麻开门](https://www.gate.com/signup/UwVHXVBX?ref_type=103&utm_cmp=PEYEQdSb)（Gate.io）
    山寨币数量最多，适合埋伏新币。大部分币在上币安、欧易这两个大所之前都会上芝麻，诞生很多百倍千倍币，所以很多币圈老人会在芝麻埋伏好，一旦上了欧易币安就开始变现。注册好之后，记得领取**数字货币盲盒**。玩现货推荐用芝麻开门。使用此邀请码：**UwVHXVBX** 可以**永久减免部分手续费**。
 3. **[币安](https://www.maxweb.academy/referral/earn-together/refer-in-hotsummer/claim?hl=zh-CN&ref=GRO_20338_NRCZA&utm_source=default)
-全球交易量第一。使用此邀请码：**GRO_20338_NRCZA** 可以永久减免部分手续费。若注册遇到问题，可参考：**[币安交易所新号注册及身份证KYC过审](https://dear-vision-808.notion.site/024d9025f9824f7789d036de2b81b723)
+全球交易量第一。使用此邀请码：**GRO_20338_NRCZA** 可以永久减免部分手续费。
 4. **[Bybit](https://www.bybitglobal.com/invite?ref=VAMZK3R)**
    香港和台湾地区用得多
 
